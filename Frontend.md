@@ -60,7 +60,7 @@ shashankpatil28
 
 ## Hand in Your Creation:
 
-**Submission Deadline**: Be ready to present your marketplace by **18/08/23 : 3:00am**
+**Submission Deadline**: Be ready to present your marketplace by ** 2 October 2024, 11:59 Pm**
 
 ---
 
